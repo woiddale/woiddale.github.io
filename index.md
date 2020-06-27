@@ -8,3 +8,4 @@ zu stehen. Er gehört zu einem alten schottischen Clan der sich gegen die Unterd
 * Treu
 * Aufmerksam
 * Hilfsbereit
+* Warmherzig
