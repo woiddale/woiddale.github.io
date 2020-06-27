@@ -7,3 +7,4 @@ zu stehen. Er gehört zu einem alten schottischen Clan der sich gegen die Unterd
 * Inteligent
 * Treu
 * Aufmerksam
+* Hilfsbereit
