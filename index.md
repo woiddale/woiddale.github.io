@@ -14,3 +14,6 @@ Jamie sagte:
 
 > Ich liebe dich meine
 > liebe Claire
+
+Schottland:
+<img src="https://cdn.pixabay.com/photo/2020/06/19/02/15/landscape-5315458_960_720.jpg"/>
