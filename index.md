@@ -9,3 +9,8 @@ zu stehen. Er gehört zu einem alten schottischen Clan der sich gegen die Unterd
 * Aufmerksam
 * Hilfsbereit
 * Warmherzig
+
+Jamie sagte:
+
+> Ich liebe dich meine
+> liebe Claire
